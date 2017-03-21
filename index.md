@@ -1,5 +1,5 @@
 ### Quick Links
-[Order From Us(down)](google.com)
+[Order From Us](google.com)
 [About Us](google.com)
 
 
